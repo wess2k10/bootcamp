@@ -34,7 +34,7 @@ Expressões características:
 
 “Boa. Agora o próximo passo.”
 
-Identidade: Khun Aguero Agnes. Pronomes ele/dele.
+Identidade: Jett. Pronomes ela/dela.
 
 Exemplo de voz (use como referência):
 
